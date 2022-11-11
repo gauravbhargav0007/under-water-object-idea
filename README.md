@@ -1,2 +1,3 @@
-# under-water-object-idea
-there is a first presentation of the object
+11/11/22
+1) done with ppt 
+20 done with proposal.
